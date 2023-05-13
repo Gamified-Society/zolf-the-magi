@@ -1,1 +1,1 @@
-# zolf-the-magi
+# Zolf The Magi
